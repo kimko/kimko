@@ -1,0 +1,2 @@
+- Hi, I’m @kimko👋
+- I’m interested in Plants🪴,, Sewing🧵 and Boardgames🎲 
